@@ -1,2 +1,2 @@
 # Investigaci-n-Aplicada-2
-tarea de la inge
+Trabajo hecho solamente por Kennard David Pineda Aguilar 3 "C" DDS
